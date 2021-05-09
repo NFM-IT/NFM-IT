@@ -1,4 +1,4 @@
--  Hi, I’m @NFM-IT
+-  Hi, I’m @NFM-IT , Senior Information Technology student 🎖
 -  I’m interested in Information Technology field.
 -  I’m currently learning new horizons in the field and growing professionally!
 -  I’m looking to collaborate on Programming and more.
